@@ -1,0 +1,1 @@
+# qa_sep22-NahaichukArtem
